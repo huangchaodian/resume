@@ -1,2 +1,6 @@
-# resume
-#i need a job
+黄朝殿的简历
+============
+基本情况
+-----------
+姓名：黄朝殿   联系电话：15600616403   E-mail：huangchaodian@live.com   英语水平：CET-6
+
